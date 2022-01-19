@@ -1,3 +1,4 @@
 - 👋 Hi, I’m Michael!
-- 🌱 I’m currently learning Python and Swift !
+- I love writing scalable code and clean code. Currently figuring out a way to implement SOLID practices in every software I am apart of.
+- 
 
