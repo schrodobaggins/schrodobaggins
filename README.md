@@ -1,6 +1,6 @@
 * * *
 
-currently seeking out all opportunities to expand my learning
+looking for my next family of software engineers to help grow and uplift
 
 * * *
 
