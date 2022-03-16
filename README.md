@@ -1,7 +1,7 @@
 michael schroeder
 
 
-currently seeking out opportunities to showcase my abilities
+currently seeking out all opportunities to expand my learning
 
 
 
